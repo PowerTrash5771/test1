@@ -27,6 +27,7 @@ The magical dog has been revived. It went to a gym and lost weight. Now some hai
 <br />
 <br />
 <br />
+<br />
 
 ## Chapter 3 <a name="chapter3">
 Crapping Machine has died in a volcano. "Oh Crap" said Crapping Machine in Dog Heaven. Crapping Machine played with his old street dog friends, but his old friends were laughing at his name, they said "haha Crapping Machine is the worst name, we were named crap and crappy". Crapping Machine started to cry, it sounded like "Oh No. ANYWAY". Crapping Machine was alone for 404 years, Crapping Machine was sad.
